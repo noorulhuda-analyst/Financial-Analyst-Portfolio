@@ -43,4 +43,4 @@ ACCA Affiliate — ID: 5982670
 
 ## Contact
 📧 noorulhuda5114@gmail.com
-💼 linkedin.com/in/noor-ul-huda-6a45302b6
+💼 https://www.linkedin.com/in/noor-ul-huda-6a45302b6/
